@@ -1,0 +1,1 @@
+Hi all! Thank you for investing in rECRU1TERc00L coin. Please deploy. 
